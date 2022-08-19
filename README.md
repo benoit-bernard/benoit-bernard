@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @benoit-bernard
-- 👀 I’m interested tech, nature, GoPro/Dji
+- 👀 I’m interested tech, nature, making memories
 - 🌱 Growing plants and love
 - 💞️ Keep it simple and beautiful
 - 📫 Reach me contact@nomad-coder.com
