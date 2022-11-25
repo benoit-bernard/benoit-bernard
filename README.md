@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @benoit-bernard
-- 👀 I’m interested tech, nature, making memories
+- 👀 I’m interested tech, nature
+- 😍 making memories (family, friends, adventures, photo & video)
 - 🌱 Growing plants and love
 - 💞️ Keep it simple and beautiful
-- 📫 Reach me contact@nomad-coder.com
+- 📫 Reach me: http://nomad-coder.com > contact@nomad-coder.com
