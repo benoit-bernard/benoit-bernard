@@ -4,3 +4,4 @@
 - 🌱 Growing plants and love
 - 💞️ Keep it simple and beautiful
 - 📫 Reach me: http://nomad-coder.com > contact@nomad-coder.com
+or https://about.me/benoit.b
